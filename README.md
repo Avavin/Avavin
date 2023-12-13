@@ -4,6 +4,7 @@
 - 💞️ I’m looking to collaborate on this journey.
 - 📫 How to reach me: Through here, for now. 
 
+- Currently looking at C/C++.
 
 Current Project: No planned project
 
