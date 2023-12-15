@@ -13,6 +13,9 @@ Current Project: No planned project
 Current Job: Electrician
 
 Dream Job: Software Engineer
+
+Hobbies
+-Valorant
 <!---
 KingAscent/KingAscent is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
