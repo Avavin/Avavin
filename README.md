@@ -14,6 +14,8 @@ Current Job: Electrician
 
 Dream Job: Software Engineer
 
+Motivation: All time low/Losing hope
+
 Hobbies
 -Valorant
 -League of Legends
