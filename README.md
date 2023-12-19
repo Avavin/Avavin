@@ -19,6 +19,7 @@ Hobbies
 -League of Legends
 -Fate/ Franchise
 -Yu-Gi-Oh! Master Duel
+-Genshin Impact
 <!---
 KingAscent/KingAscent is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
