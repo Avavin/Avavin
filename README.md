@@ -16,6 +16,8 @@ Dream Job: Software Engineer
 
 Motivation: All time low/Losing hope
 
+School maybe?
+
 Hobbies
 -Valorant
 -League of Legends
