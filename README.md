@@ -16,7 +16,7 @@ Dream Job: Software Engineer
 
 Motivation: All time low/Losing hope
 
-School maybe?
+School maybe? Work will pay for it?
 
 Hobbies
 -Valorant
