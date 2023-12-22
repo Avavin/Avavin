@@ -19,10 +19,15 @@ Motivation: All time low/Losing hope
 School maybe? Work will pay for it?
 
 Hobbies
+
 -Valorant
+
 -League of Legends
+
 -Fate/ Franchise
+
 -Yu-Gi-Oh! Master Duel
+
 -Genshin Impact
 <!---
 KingAscent/KingAscent is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
