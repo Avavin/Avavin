@@ -29,6 +29,8 @@ Hobbies
 -Yu-Gi-Oh! Master Duel
 
 -Genshin Impact
+
+-Epic 7
 <!---
 KingAscent/KingAscent is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
