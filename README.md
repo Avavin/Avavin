@@ -26,7 +26,7 @@ Hobbies
 
 -Fate/ Franchise
 
--Yu-Gi-Oh! Master Duel
+-Yu-Gi-Oh! Master Duel / Omega / EdoPro
 
 -Genshin Impact
 
