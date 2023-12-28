@@ -14,7 +14,7 @@ Current Job: Electrician
 
 Dream Job: Software Engineer
 
-Motivation: All time low/Losing hope
+Motivation: All time low/Losing hope, actually it is almost 0. I just update this out of habit. 
 
 School maybe? Work will pay for it?
 
