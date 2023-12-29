@@ -10,7 +10,7 @@
 
 Current Project: No planned project
 
-Current Job: Electrician
+Current Job: Electrician (In Training)
 
 Dream Job: Software Engineer
 
