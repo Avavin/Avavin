@@ -20,17 +20,17 @@ School maybe? Work will pay for it?
 
 Hobbies
 
--Valorant
+-Valorant (Immortal)
 
--League of Legends
+-League of Legends (Retired)
 
 -Fate/ Franchise
 
--Yu-Gi-Oh! Master Duel / Omega / EdoPro
+-Yu-Gi-Oh! Master Duel / Omega / EdoPro (Master/Omega/Unrated)
 
--Genshin Impact
+-Genshin Impact (AR55)
 
--Epic 7
+-Epic 7 (Top 200 Guild Wars)
 
 -Pokemon
 
