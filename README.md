@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on this journey.
 - 📫 How to reach me: Through here, for now. 
 
-Update January 3: I FORGOT TO DO A CONTRIBUTION ON JANUARY 2 NOOOOOOOOOO
+Update January 3: I FORGOT TO DO A CONTRIBUTION ON JANUARY 2 NOOOOOOOOOO... I will still try to update daily.
 - Currently looking at: C/C++.
 
 - Current stance: Still open to learning and collaborating.
