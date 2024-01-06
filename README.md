@@ -27,6 +27,8 @@ Hobbies
 
 -Fate/ Franchise
 
+-Fire Emblem
+
 -Yu-Gi-Oh! Master Duel / Omega / EdoPro (Master/Omega/Unrated)
 
 -Genshin Impact (AR55)
