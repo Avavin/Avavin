@@ -7,7 +7,7 @@
 Update January 3: I FORGOT TO DO A CONTRIBUTION ON JANUARY 2 NOOOOOOOOOO... I will still try to update daily.
 - Currently looking at: C/C++/Any. Open to all.
 
-- Current stance: Still open to learning and collaborating. Looking primarily for OTJ training. Willing to start at any time, on any shift. 
+- Current stance: Still open to learning and collaborating. Looking primarily for OTJ training. Willing to start at any time, on any shift. Currently looking at school or LP.
 
 Current Project: No planned project
 
