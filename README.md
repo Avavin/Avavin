@@ -34,7 +34,7 @@ Hobbies
 
 -Epic 7 (Top 200 Guild Wars)
 
--Pokemon
+-Pokemon / 38
 
 -Video Editing
 
