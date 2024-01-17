@@ -36,7 +36,7 @@ Hobbies
 
 -Pokemon / 38
 
--Video Editing
+-Video Editing / Current project: Furina to M5 january 2024
 
 -Anime / Latest Watch: Rascal Does Not Dream of a Sister Venturing Out
 <!---
