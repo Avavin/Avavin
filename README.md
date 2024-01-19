@@ -38,7 +38,7 @@ Hobbies
 
 -Video Editing / Current project: Furina to M5 january 2024 (Need anime clips)
 
--Anime / Latest Watch: Rascal Does Not Dream of a Sister Venturing Out
+-Anime / Latest Watch: Rascal Does Not Dream of a Sister Venturing Out / Next Watch: Goblin Slayer S2
 <!---
 KingAscent/KingAscent is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
