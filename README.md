@@ -36,7 +36,7 @@ Hobbies
 
 -Pokemon / 38
 
--Video Editing / Current project: Furina to M5 january 2024
+-Video Editing / Current project: Furina to M5 january 2024 (Should be out by Saturday)
 
 -Anime / Latest Watch: Goblin Slayer S2 / Next Watch: ?
 <!---
