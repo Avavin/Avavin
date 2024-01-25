@@ -20,7 +20,7 @@ School maybe? Work will pay for it?
 
 Hobbies
 
--Valorant (Immortal)
+-Valorant (Immortal) (Deleted)
 
 -League of Legends (Retired)
 
