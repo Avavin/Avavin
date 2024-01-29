@@ -36,7 +36,7 @@ Hobbies
 
 -Pokemon / 38 (Looking to farm Dialga to level 39 on Sinnoh Tour)
 
--Video Editing / Current project: Furina to M5 january 2024 (Should be out by Sunday!)
+-Video Editing / Current project: Furina to M5 january 2024 / VIDEO OUT NOW :)
 
 -Anime / Latest Watch: Goblin Slayer S2 / Next Watch: ?
 <!---
