@@ -26,7 +26,7 @@ Hobbies
 
 -Fate/ Franchise
 
--Fire Emblem
+-Fire Emblem Heroes
 
 -Yu-Gi-Oh! Master Duel / Omega / EdoPro (Master/Omega/Unrated) / Casual Now
 
