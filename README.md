@@ -39,6 +39,8 @@ Hobbies
 -Video Editing / Current project: Furina to M5 january 2024 / VIDEO OUT NOW :)
 
 -Anime / Latest Watch: Goblin Slayer S2 / Next Watch: ?
+
+-Reading: Rascal Does Not Dream Of Bunny Girl Senpai LN
 <!---
 KingAscent/KingAscent is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
